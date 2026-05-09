@@ -1,4 +1,4 @@
-
+Enhance GarageBand for macOS with GarageBand for macOS new Script: time-remapping & lower-thirds, the #1 script. Includes time-remapping and lower-thirds for a smoother and more
 
 
 
